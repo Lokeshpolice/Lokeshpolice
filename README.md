@@ -15,7 +15,8 @@
 
 - 📫 How to reach me **reddypolicelokesh@gmail.com**
 
-- 📄 Know about my experiences [file:///D:/E3D%20CLASS%20FILES/piping/PIPING%20CLASS%2005/Lokesh%20reddy%20identity/P.LOKESH%20REDDY%20RESUME.pdf](file:///D:/E3D%20CLASS%20FILES/piping/PIPING%20CLASS%2005/Lokesh%20reddy%20identity/P.LOKESH%20REDDY%20RESUME.pdf)
+- 📄 Know about my experiences
+  [RESUME](https://drive.google.com/file/d/13fapjEqA-59FjbOmM3A0LKN20CaN6evw/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
